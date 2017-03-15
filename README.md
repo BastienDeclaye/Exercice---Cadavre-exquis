@@ -17,3 +17,5 @@ J'ai différents poulets :
 * Rampants
 * Trébuchants
 * Courants
+
+Par contre les poulets volants ne sont plus en stock, ils se sont...beeh envolés...
