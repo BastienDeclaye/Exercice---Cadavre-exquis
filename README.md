@@ -7,3 +7,5 @@ Et là il dit: "Bonjour madame! Vous auriez du poulet?"
 Non, par contre on a du san...
 
 glier qui ne mange pas ses 5 fruits et légumes par jour
+
+Pardon, vous pouvez répéter ?
